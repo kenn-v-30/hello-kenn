@@ -4,4 +4,6 @@ test
 
 trying out github
 
-embrance your dreams
+embrance your dreams..
+
+and whatever happens, protect your honor
